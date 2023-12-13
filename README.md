@@ -1,0 +1,2 @@
+# GigaKonsepktik
+Гига конспектик
